@@ -16,7 +16,7 @@ Email: anantagrawal280@hotmail.com
 
 LinkedIn: https://www.linkedin.com/in/anant-agrawal2000/
 
-Twitter: @YourTwitterHandle
+Twitter: https://twitter.com/Anant_Agrawal01
 
 I'm always open to new ideas and collaborations, so don't hesitate to get in touch!
 
