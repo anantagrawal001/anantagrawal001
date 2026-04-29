@@ -12,7 +12,7 @@ How to Contact Me
 If you have any questions or would like to chat, please feel free to reach out to me through any of the following channels:
 
 
-Email: anantagrawal280@hotmail.com
+Email: anantagrawal280@gmail.com
 
 LinkedIn: https://www.linkedin.com/in/anant-agrawal2000/
 
